@@ -19,4 +19,4 @@
 * Please check out my Github: [Github Link](https://github.com/AlexOneUp?tab=repositories)
 * Let's Stay Connected!
 
-  * Linkedin: [Linkedin Link](https://www.linkedin.com/in/alice-liu-a50168207/)
+  * Linkedin: [Linkedin Link](https://www.linkedin.com/in/alex-ruan/)
